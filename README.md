@@ -1,0 +1,1 @@
+# High-entropy-amorphous-metal-oxide2
